@@ -1,1 +1,1 @@
-just begin
+just beging
